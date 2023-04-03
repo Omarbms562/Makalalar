@@ -1,2 +1,2 @@
 # Makalalar
-Makala
+Issue diyip duran yerde basyň 
