@@ -1,2 +1,2 @@
 # Makalalar
-Issue diyip duran yerde basyň 
+Wiki diyip duran yerde biziň ähli makalalarymyzy okap bilersiňiz.Okanyňyz üçin minnetdar:)
